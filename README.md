@@ -120,7 +120,8 @@ Guides and technical articles where I contributed screenshots, screencasts, prac
 ## 💅 Additional Expertise
 
 - [ASTQB-Certified](https://atsqa.org/certified-testers/profile/992f4dbc0bb341f9a03b01e3d7e6372b)
-- [Featured on Bē in engaging and clever use of motion](https://www.behance.net/gallery/216190435/Plants-and-Ceramics-illustrations)
+- [Featured in engaging and clever use of motion](https://www.behance.net/gallery/216190435/Plants-and-Ceramics-illustrations)
+- [Featured in creating illustrations](https://www.behance.net/gallery/216190435/Plants-and-Ceramics-illustrations)
 
 ## 🤝 Let's Connect!
 
